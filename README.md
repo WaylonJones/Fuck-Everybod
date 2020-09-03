@@ -1,1 +1,1 @@
-# Fuck-Everybod
+Fuck Everybody
